@@ -2,7 +2,7 @@
 
 ### soft kills
 
-Sou reservado, mas quando for nessecario me comunico muito bem.
+Sou reservado, mas quando for necessário me comunico muito bem.
 
 <div style = "display: inline_block"> 
  <img src="https://github.com/user-attachments/assets/ccf84ac2-3ebe-4b10-b62e-99d05da7141e"/>
